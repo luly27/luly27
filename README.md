@@ -1,4 +1,4 @@
 💗
 luly
 ela/dela
-_insta @_luly.27_ _
+insta @_luly.27_
